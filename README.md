@@ -1,11 +1,11 @@
 # Activity Report of Induction-program 2025-
 
-Field-Btech 1st year
-Name-Navjot Singh
-Father Name- Daljeet Singh
-branch-Electronics and Communication
-Registration no-25101336
-Mobile no-7627867288
+Field-Btech 1st year,
+Name-Navjot Singh,
+Father Name- Daljeet Singh,
+branch-Electronics and Communication,
+Registration no-25101336,
+Mobile no-7627867288,
 Email-navjotsingh1538@gmail.com
 
 day 1 (30july 2025) 
