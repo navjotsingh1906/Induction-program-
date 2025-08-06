@@ -30,7 +30,7 @@ Before starting the day,MOLMANTAR WAS RECITE BY STUDENTS BY THE ENCOURAGEMENT OF
 
 DAY-3 (4-Augest-2025) 
 
-Before starting the day,MOLMANTAR WAS RECITE BY STUDENTS BY THE ENCOURAGEMENT OF Dr. Harpreet Kaur Grewal, Head of the Department of Applied Sciences
+Before starting the day,MOLMANTAR WAS RECITE BY STUDENTS BY THE ENCOURAGEMENT OF Dr. Harpreet Kaur Grewal, Head of the Department of Applied Sciences.
 At  8:30-9:50 -The Causmic Club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation. 🚀✨
 At  10:00-10:30- Gautam Murria from D4ME, shared his journey in Motorsports, inspiring young minds with passion and grit. 🏎️🔥
 At  10:30-12:30-lecture delived  by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life. 🧠 💫
