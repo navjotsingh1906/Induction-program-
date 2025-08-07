@@ -48,7 +48,7 @@ At 11:50-12:45-An Inspiring Encounter! We were honoured to host Brigadier P. S.C
 After break at 1:30-2:30 we have a physics lecture with prof.amanjot kaur in room no.F-108 in which she familier all of us with the basics of physics, she also give imformation about the syallabus in the 1st semester.
 At 2:30-3:30- we have a lecture with gautam sir(D4-ME) he gave a knowledge about racing car,balancing factors in the cars,at what factors we can concentrate so that we will win the race (MOST IMPORTANT IS THE MILLI-SECOND WHICH PLAYS AN IMPORTANT ROLE IN MOST OF THE CAR RACES TO CHECK THE ULTIMATE WINNER).
 
-#DAY-6 (7-Augest-2025)
+# DAY-6 (7-Augest-2025)
 
 At 9:30-10:30- we had a lecture physics with prof.komalpreet kaur in room no.F-112. It was basically an introduction lecture in which we were made familier with the concepts we learnt that are used further in the 1st semester. 
 At 10:30-11:30-we have a lecture maths with prof.sandeep kaur gill (in ME-SEMINAR HALL) in which we discuss the ch- differential equaton like what are differential equation,what is the degree nad order of differential eqation,what are the ways to solve such an equation,what do you mean by parial fraction etc.
