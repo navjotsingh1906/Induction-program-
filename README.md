@@ -8,7 +8,7 @@ Registration no-25101336,
 Mobile no-7627867288,
 Email-navjotsingh1538@gmail.com
 
-day 1 (30july 2025) 
+-----day 1 (30july 2025) 
  
 8.30 to 9.30 - shabad kirtan in guruduwara
 after shabad kirtan,tea was arranged with snacks.
